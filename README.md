@@ -1,5 +1,5 @@
-Hi, l'm @Alexey-Olegovich-byte
-What to tell, here you decide to try studying online, 
+Hi, l'm @Alexey-Olegovich-byte.
+What tell, here you decide to try studying online, 
 but to honest, it looks strange,to put it mildly.
 Especially if oyu take into account all these
 abbreviations, it's just a dead end.
