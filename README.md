@@ -1,5 +1,5 @@
 Hi, l'm @Alexey-Olegovich-byte.
-What can i tell you,so i decided
+What can i tell you,so l decided
 to try to study online,but to be honest,
 it looks,to put it mildly,strange.
 Especially considering all these cuts,
